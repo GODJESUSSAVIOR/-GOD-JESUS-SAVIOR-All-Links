@@ -35,10 +35,10 @@ https://1drv.ms/w/c/0b7eb4fee4deb1f7/ESILkB_7gS1Dl9mrN_0p5pIBE5GcEFJxy-p8GmCBLH9
 https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
 https://1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
-✝️ GOD JESUS SAVIOR ❤️ Christian Missionaries :
+✝️ GOD JESUS SAVIOR ❤️ Christians Missionaries :
 https://docs.google.com/document/d/1iM3rwhQAtI2zvFQ_mEkIL88yeExx7UjMYXvjZYax1uM
 
-✝️ GOD JESUS SAVIOR ❤️ Christian Ministries :
+✝️ GOD JESUS SAVIOR ❤️ Christians Ministries :
 https://docs.google.com/document/d/1Ulj2qXA-C1keK1b0TmjPCsFs7EWHlGot-XtC7MmEoKY
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Testimonies :
@@ -47,5 +47,5 @@ https://docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 ✝️ GOD JESUS SAVIOR ❤️ Christians Links :
 https://docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
 
-✝️ GOD JESUS SAVIOR ❤️ Christian Songs :
+✝️ GOD JESUS SAVIOR ❤️ Christians Songs :
 https://docs.google.com/document/d/1eK7gJZQg-voHmE3zsHuOaDX3jTOC-qQLjP3he7FUBfs
